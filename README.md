@@ -1,0 +1,1 @@
+https://www.tinkercad.com/things/45e9dI1Tfek-practica02sdixitaisino?sharecode=mEVqriRkjkUH6sCbdrCOFCU6kHqKxIIZOj_XYbtzFcA
